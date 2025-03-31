@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @mango11004
 - 👀 I’m interested in all related with computers, everything
 - 💞️ I’m looking to collaborate on things that i like and friends proyects
-- 📫 How to reach me: gonzalezlopez.manuel2004@gmail.com
